@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Keerth200228
-- 2023 Fresher
+- I'm a immediate joiner 
+- 2023  passed out Fresher
 - Searching for job in IT industries
 
 <!---
